@@ -1,1 +1,1 @@
-# KANKA GÖZÜM SİKİLDİ AQ
+
